@@ -1,4 +1,4 @@
-# I
+# A Committee
 
 - Hi, I’m @a-committee
 - I’m interested in ...
